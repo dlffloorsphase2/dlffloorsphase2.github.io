@@ -1,37 +1,18 @@
-## Welcome to GitHub Pages
+# DLF Floors Phase 2 Gurgaon, Independent Floors For Sale in DLF City Phase 2 Gurgaon
 
-You can use the [editor on GitHub](https://github.com/dlffloorsphase2/dlffloorsphase2.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Attractive and advantageous location Of DLF Floors Phase 2 Gurgaon
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+DLF City Phase II is surrounded on three sides by the express lifelines of Gurugram: Delhi-Jaipur Expressway (NH-48), Mehrauli-Gurugram Road and Raghvendra Marg. The internal arterial roads Jacaranda Marg, Akashneem Marg, Dakshin Marg and Bougainvillea Marg, with a network of supporting roads, seamlessly connect to these expressways.
 
-### Markdown
+## [Indepedent Floors DLF City Phase 2 Gurgaon](https://www.topluxury.in/dlf-floors-phase-2-gurgaon.html) Location
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Metro stations at MG Road, Sikanderpur and DLF City Phase II on three sides and DLF Cybercity in close proximity make the location ideal for corporate honchos and business owners. Retail destinations with premier socialising zones at DLF Cyber Hub and MG Road are only a short drive away.
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+## DLF City Floors Phase 2 Gurgaon
 
-- Bulleted
-- List
+For a limited time only, DLF Projects Limited brings you the opportunity to own a luxury independent floor in the bustling heart of DLF City Phase II. Enjoy the benefits of urban convenience without sacrificing the privilege of privacy and independence.
 
-1. Numbered
-2. List
+For more details visit [DLF Floors Phase 2](https://www.topluxury.in/dlf-floors-phase-2-gurgaon.html) Website
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/dlffloorsphase2/dlffloorsphase2.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+![Image](https://www.topluxury.in/admin/upload/1627624752-dlf-floors-phase2-gurgaon.jpg)
